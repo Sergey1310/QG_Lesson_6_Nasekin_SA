@@ -1,0 +1,1 @@
+# QG_Lesson_6_Nasekin_SA
